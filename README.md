@@ -1,1 +1,1 @@
-<img width="1470" height="930" alt="vocaltochoir 100 screen 150pr" src="https://github.com/user-attachments/assets/eb97d5b7-a085-4e9f-8f08-58a2c35330ea" />
+<img width="1950" height="930" alt="vocaltochoir 102 screen 150pr" src="https://github.com/user-attachments/assets/ae17b7ae-e077-4265-9750-8c2861830da9" />
